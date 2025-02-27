@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on soltero
 - 📫 How to reach me hablandome
-- 😄 Pronouns: feliz
+- 😄 Pronouns: Picazo
 - ⚡ Fun fact: ...
 
 <!---
