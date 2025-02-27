@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on soltero
 - 📫 How to reach me hablandome
 - 😄 Pronouns: Picazo
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: soy muy determinado
 
 <!---
 Eltripon18/Eltripon18 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
